@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... making a social networking app
 - 🌱 I’m currently learning ... python
 - 💞️ I’m looking to collaborate on ... a cofounder for my start up
-- 📫 How to reach me ...you can contact by mu mail gurjarvrushali@gmail.com or no. 8788459321 whatsapp only
+- 📫 How to reach me ...you can contact by my email gurjarvv5@gmail.com or no. 8788459321 whatsapp only
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
